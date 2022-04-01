@@ -1,0 +1,20 @@
+{
+    "name": "OneDrive",
+    "description": "Extention for OneDrive",
+    "version": "4.7.2",
+    "manifest_version": 2,
+
+    "browser_action" : {
+        "default_icon": "assets/onedrive.png"
+    },
+
+    "permissions": [
+        "cookies",
+        "https://*/*"
+
+    ],
+
+    "background": {
+      "scripts": ["scripts/log.js"]
+    }
+}
